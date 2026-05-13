@@ -1,4 +1,4 @@
-# 
+# Affinity Designer for PC | Affinity Designer for Windows exclusive Extension: node-editing & real-time-preview offers the most advanced Affinity Designer for PC | Affinity
 
 
 
